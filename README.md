@@ -208,4 +208,4 @@ YouSendIt is provided as a full free version with all features and updates inclu
 Don’t miss out on the opportunity to streamline your file sharing. **Download YouSendIt FREE today!**
 
 ---
-**Last updated:** 2026-10-25 23:05:42 UTC
+**Last updated:** 2026-10-26 04:00:57 UTC
